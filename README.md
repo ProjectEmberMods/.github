@@ -1,3 +1,3 @@
 # Project Ember
 
-We've a long rong ahead of us. 
+We've a long long ahead of us. 
